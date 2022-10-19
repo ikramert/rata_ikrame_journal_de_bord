@@ -1,15 +1,9 @@
 # Cours 7
-## Analyse critique d'une oeuvre
 
-L’objectif de cet exercice est de développer une opinion sur une œuvre multimédia. Pour l’analyse, choisissez l’une des œuvres que nous avons visitées. 
+J’ai choisi la salle numéro 3 de l’exposition Van Gogh.
 
-Entre 300 et 400 mots. 
+La salle 3 de l’exposition Van Gogh met en œuvre sa vie adulte et son art a cette étape de sa vie. À cette époque, il fait des portraits des gens du village et prend le temps de les immortaliser dans leur nature. Il peinture aussi les éléments de son environnement par exemple sa chambre et la nature qu’il l’entoure. Dans la salle 3, il y a des bancs de parc dans les quatre coins de la salle avec des plateformes blanche et rondes au milieu. Il y a peut-être une centaine de hauts parleurs autour des murs proche des plafonds, on entend une voix qui prend le rôle de Van Gogh ainsi qu’une autre qui joue son frère. La voix lit les lettres que Van Gogh envoie à son frère et vice-versa afin que le spectateur puisse avoir une idée de ou est-ce que Van Gogh est rendu dans son parcours artistique. Il y a des projections sur toutes les parties de la pièce. Sur le mur on y retrouve ses œuvres d’arts et croquis. Sur le plancher, il y a de l’interactivité qui s’ajuste avec les thèmes. Lorsqu’on marche sur le plancher il y a des ronds qui apparaissaient sous nos pieds et qui suivent nôtres parcours à travers la pièce. 
 
-### Description
-Décrivez l'oeuvre. Quelles étaient les composantes de l'installation? Comment était-elle réalisée techniquement? 
+L’œuvre m’a plu, c’était agréable et relaxant je dirais même. Les couleurs éclatantes étaient d’une telle beauté. On arrivait à la fin de la vie de Van Gogh et tout ce qui avait été présenté dans les salles précédentes s’est concrétisé. Les lettres avec son frère était ce qui m’a le plus touché. Un moment qui m’avait touché était lorsque que son frère a appelé son fils Vincent mais que celui-ci n’a jamais eu l’occasion de le rencontrer car il était si loin. 
 
-### Opinion
-Donnez votre opinion sur l'oeuvre que nous avons visitée. Vous a-t-elle plu? Ou pas du tout? Pourquoi? Est-ce que certains aspects vous ont plus touchés que d'autres? 
-
-### Analyse critique
-Qu'est-ce qui pourrait être modifié dans cette oeuvre? 
+J’aurai voulu qu’il ait plus d’interactivité appart les ronds en dessous des pieds. Le spectateur devrait rentrer plus en contact avec les œuvres. Peut-être rajouté de l’interaction sur les murs ou une illusion d’objets flottants à travers la pièce. 
